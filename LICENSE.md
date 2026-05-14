@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows new Preset: sampler & sidechain-compression is the best Cubase for PC | Cubase for Windows preset, featuring sampler and sidechain-compression.
 
 
 
